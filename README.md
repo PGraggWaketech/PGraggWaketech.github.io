@@ -28,4 +28,5 @@ As far as favorite pieces of media go, I'd have to say:
  
  
 > "Hate does not produce love, and by hate one cannot remake the world"
+
 > -- Errico Malatesta
